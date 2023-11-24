@@ -6,3 +6,5 @@
 Tout était calme sur le bateau de livraison, mais cela ne dura pas, des bruits de moteurs étaient entendu, les bruits devenaient de plus en plus forts jusqu'à ce que des coups de feux se firent entendre. *écran 1440* voulait rassurer sa copine la **télévision 4k**, mais écran 1440 savait que ça n'allait ps bien se passer pour eux.**
 
 Comble de malheur, le bateau se met à tanguer séparant les deux amies en les envoyant glisser de part et d’autre de la cale ou elles se trouvent. *« Au secours !!!»*  crie télévision 4k qui tremble de peur. Ecran 1440 désespéré de l’entendre crier, ne peut pas l’aider car lui-même est coincé entre frigo américain et le mur. Il ressent des douleurs qu’il n’avait jamais imaginé ressentir, comme il aurait aimé ne jamais quitter le dépôt.
+
+Tout tremble , les bruits se font de plus en plus fort , ça crie de partout... Une lumière blanche et eblouissante se fait de plus en plus fort puis plus rien... **Ecran 1440p** se reveilla , ce n'était qu'un horrible cauchemare. **Télévision 4k** était entière a côté de lui prête a être livrée. Il était heureux de savoir que leurs existence n'était plus compromisent.
